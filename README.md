@@ -1,1 +1,1 @@
-# blue
+# blue color pantone looks like a lake shines in the sun
